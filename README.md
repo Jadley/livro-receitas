@@ -3,4 +3,4 @@
 Bem vindo, ao meu livro de receitas caseiras.
 
 - Temaki de salmão.
-- Brigadeiro.
+- Brigadeirão.
