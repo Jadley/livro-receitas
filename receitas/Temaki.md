@@ -16,7 +16,7 @@
 
 ### MODO DE PREPARO
 
-1. Em uma panela grande, coloque a água e leve ao fogo alto para aquecer. Ao abrir fervura, junte o arroz, mexa com cuidado e deixe cozinhar com a panela semitampada por 20 minutos, ou até a água começar a secar.
+1. Em uma panela grande, coloque a água e leve ao fogo alto para aquecer. Ao abrir fervura, junte o arroz, mexa com cuidado e deixe cozinhar com a panela semi-tampada por 20 minutos, ou até a água começar a secar.
 2. Abaixe o fogo e cozinhe por mais 7 minutos. Retire do fogo, tampe, cubra a panela com um pano de prato limpo e deixe descansar por 10 minutos. Transfira o arroz para uma tigela e reserve.
 3. Em uma panela média, coloque o vinagre, o saquê, o açúcar, o sal e o **AJI-NO-MOTO®**, e leve ao fogo médio até levantar fervura. Retire do fogo, regue o arroz ainda quente, mexa cuidadosamente com uma espátula para que todo o arroz seja temperado e espere amornar.
 4. Em uma tigela, coloque o salmão, o cream cheese e a cebolinha, e misture.
